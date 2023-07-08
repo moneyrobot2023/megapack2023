@@ -56,4 +56,5 @@ Parser чатов Telegram по активности 2023
 ![alt text](https://telegra.ph/file/85c84a52bb940968504d1.png)
 _
 
-## Visit https://dobrofile.ru/?s=6aa90e062
+## Купить https://dobrofile.ru/?s=6aa90e062
+## Купить через Telegram со скидкой https://t.me/fradddyrad
